@@ -1,1 +1,1 @@
-# GitTraining
+napiswame neshto
