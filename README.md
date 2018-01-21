@@ -1,1 +1,2 @@
 napiswame neshto
+oshte neshto
